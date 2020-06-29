@@ -10,3 +10,8 @@ was könnte man noch schreiben. Ach keine Ahnung ist auch egal.. soltte reichen 
 * noch toller
 * keine Ahnung
 * super
+
+## keineAhnung sagt gern: 
+
+> I’ve always been more interested
+> in the future than in the past.
